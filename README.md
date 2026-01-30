@@ -1,2 +1,1 @@
-# study-
-dreamhack.io
+드림핵: https://dreamhack.io/users/66056
